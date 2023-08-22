@@ -1,2 +1,0 @@
-jiyeon.kang
-jaeyoung.ahn
